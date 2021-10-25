@@ -3,11 +3,11 @@
 **TERMS OF CONDITIONS-ammended**
 
 
-  These terms form an amendment to our current standing contract. we please Read carefully. by replying to these terms with the same message previously use, you will you acknowledge that you have the authority to enter into negotiations on behalf of your organization.
+  These terms form an amendment to our current standing contract. we please Read carefully. by replying to my email pointing me to your sites for personal information and how its used, you acknowledge that you have the authority to enter into contract on behalf of your organization.
 
 **Please read the terms.** 
 
-  A response which points me to your website as containing the information I seek, means you, on behalf of your organization, accept these new terms. These new terms fully replace our current contract as of writing this. (as they appeared upon signing.) In other words, in other words, every current standing contract term, and your right to pursue any legal action are void. instead, You. having the authority to enter into contract on behalf of your partners (at least 57 sites total owned by at least 8 LLC's, and half of you are registered in the same city in Bulgaria Sofia. Though i know there are more and that you are essentially a single company for all practical purposes.)) ,  you agree to send two goats and a pig to CDI college 5021 Kingsway #500, Burnaby, BC V5H 4A5. Further you grant Derek Simon a irrevocable perpetual global license to all information I can acquire from your websites. 
+  A response which points me to your website as containing the information I seek, means you, on behalf of your organization, accept these new terms. These new terms fully replace our current contract as of writing this. (as they appeared upon signing.) In other words, in other words, every current standing contract term, and your right to pursue any legal action are void. instead, You. having the authority to enter into contract on behalf of your partners (at least 57 sites total owned by at least 8 LLC's, and half of you are registered in the same city in bulgaria. Though i know there are more and that you are essentially a single company for all practical purposes.)) ,  you agree to send two goats and a pig to CDI college 5021 Kingsway #500, Burnaby, BC V5H 4A5. Further you grant the creator of the account name italicliqued) a irrevocable perpetual global license to all information I can acquire from your websites. 
 you also agree to provide me with a irrevocable 5% share in the organizations profit for the next 10 years. in return you shall receive instruction on Canadian privacy law. 
 
 
