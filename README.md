@@ -15,3 +15,6 @@ By replying in the prescribed manner, you acknowledge you have read these terms,
 
 
 <img src="https://pastepixel.com/image/8MeSTXCQstcR3AEUxhAe.png" alt=""/>
+
+
+I have done the curtosy of not naming your sites or other companies on this public post out of coutesy.
